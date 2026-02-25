@@ -38,5 +38,5 @@ I am an Elite Cyber Architect in the making, transitioning from a delivery profe
 ---
 
 ##  Connect with Me
--  [LinkedIn](https://www.linkedin.com/in/your-profile-link)
+-  [LinkedIn](linkedin.com/in/mohammed-sherief-8128633a6)
 -  **Tagline:** Satisfaction = Struggle + Reward.
