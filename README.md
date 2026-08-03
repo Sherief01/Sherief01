@@ -24,5 +24,5 @@ No CS degree. Python basics level. Building by doing.
 ---
 
 ##  Connect with Me
--  [LinkedIn](linkedin.com/in/mohammed-sherief-19743a174)
+-  [LinkedIn](https://www.linkedin.com/in/mohammed-sherief-19743a174)
 -  **Tagline:** Satisfaction = Struggle + Reward.
